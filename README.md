@@ -3,7 +3,7 @@
 
 Eu sou Andreia Freitas ✨✨
 
-Atualmente estudando Full-Stack; e aceitando desafios !!
+Atualmente estudando Metodologias agéis e qualidade e testes de software; e aceitando desafios !!
 
 Trabalho com aulas online de programação basica para crianças 😂
 
