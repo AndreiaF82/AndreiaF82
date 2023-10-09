@@ -5,7 +5,7 @@ Eu sou Andreia Freitas ✨✨
 
 Atualmente estudando Metodologias agéis e qualidade e testes de software; e aceitando desafios !!
 
-Trabalho com aulas online de programação basica para crianças 😂
+ 😂
 
 
 Estou em migração de carreira para Qualidade de Software/Analista de testes, venho me dedicando ao máximo e sigo focada na minha evolução. E atualmente desejo uma oportunidade de ocupar um cargo como trainee ou Junior para adquirir e possuir maiores habilidades na área e continuar meu processo de estudos para me desenvolver. Possuo Certificação da Certipro de Scrum (Scrum Foundation Professional Certificate SFPC) e recentemente acabei meu curso de introdução ao banco de dados SQl e MongoDB, e junto com minha carreira anterior com experiência em rotinas administrativas com mais de 10 anos, estou apta para me desenvolver e continuar meus processos de aprendizagem e agregar a empresa meu comprometimento com a qualidade e serviços.
